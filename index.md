@@ -12,4 +12,8 @@ All diese Charaktere machen wahnsinns Entwicklungen durch und diese sehr glaubw�
 * witzige Wege, um Kritik an unserer Gesellschaft zu üben
 * wahnsinnig Überzeugendes Rollenspiel/Schauspiel
 * keine Schwarz-Weiß Malerei - Graustufen in den Charakteren
-* witzig, spannend, gruselig, ernst, liebevoll, ergreifend, traurig 
+* witzig, spannend, gruselig, ernst, liebevoll, ergreifend, traurig
+
+## Quote
+Xander:
+> I love you, Willow.... So if you’re gonna end the world, you’re gonna have to start with me.
